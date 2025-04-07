@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <span style="color:#d12323; font-weight:bold; font-size:22px;">Tord ・ Red Leader</span><br><br>
+  <span style="color:#d1232; font-weight:bold; font-size:22px;">Tord ・ Red Leader</span><br><br>
   Join the Red Army or perish!<br><br>
   savage leadership ☄️💥<br><br>
   more comfortable with people that i know!
