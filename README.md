@@ -12,7 +12,7 @@
 <p align="center">
   <a href="https://atabook.com/Redleaderirl">atabook</a> ✦
   <a href="https://rentry.co/eddheadache/edit">rentry</a> ✦
-  <a href="https://github.com/SOVIET-BRUTALITY">alt acc</a>
+  <a href="https://github.com/eddheadache">alt acc</a>
 </p>
 
 <p align="center">
