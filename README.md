@@ -5,7 +5,7 @@
 <p align="center">
   <span style="color:#d1232; font-weight:bold; font-size:22px;">Tord ・ Red Leader</span><br><br>
   Join the Red Army or perish!<br><br>
-  savage leadership ☄️💥<br><br>
+  NO, stomach ace i am not comfortablewith u<br><br>
   more comfortable with people that i know!
 </p>
 
