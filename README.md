@@ -2,10 +2,7 @@
   <img src="https://files.catbox.moe/6zegfv.png" alt="Milestone Elliot" width="500px">
 </p>
 
-<p align="center">
-  <img src="https://files.catbox.moe/d9dzfu.gif" alt="blinkie1">
-  <img src="https://files.catbox.moe/ffvnb0.gif" alt="blinkie2">
-  <img src="https://files.catbox.moe/nspql6.gif" alt="blinkie3">
+
   
   
 </p>
