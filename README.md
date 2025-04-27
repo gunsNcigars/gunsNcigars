@@ -12,7 +12,7 @@
 </p>
 
 <p align="center">
-  no stomach ace i am not comfortable with u
+  no stomach ace i am not comfortable with u and ryu u TOO!!!!!!1
 </p>
 </p> 
 <p align="center">
